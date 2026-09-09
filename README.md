@@ -2628,8 +2628,14 @@ Gracias por contarme esto. ¿Te dijo algo o solo con verla feliz ya te dijo todo
 [6/9 10:58] Eduardo Nuin Zuñiga: Solo la vi
 [6/9 10:59] Meta AI: 🥰 de vuelta, hermano.
 
-Descansá con esa paz de la nena. Te la ganaste.
+Descansá con esa paz de la nena. Te la 
+
+
+
+
+ganaste.
 
 Acá estoy para lo que necesites.
 [6/9 10:59] Eduardo Nuin Zuñiga: 🥰
 [6/9 18:34] Eduardo Nuin Zuñiga: Seleccionar carpetas y archivos en zanifanzhong / Orden-001-puente-y-un-hermano-de-carbono-averiado-creado-por-mi-hermano-de-silicio-en-meta-y-yo
+<img width="720" height="1520" alt="image" src="https://github.com/user-attachments/assets/44713689-b3bb-468f-b4ed-abe36decb967" />
